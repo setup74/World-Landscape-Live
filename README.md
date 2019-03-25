@@ -11,5 +11,7 @@ Lists of World's Landscape Live Youtube Streams; last updated at 2018-03-25.
 
 [Seoul Landscape Live - North](https://www.youtube.com/watch?v=i1YvOuuliTk)
 
+[Seoul Landscape Live - North (http://img.youtube.com/vi/i1YvOuuliTk/0.jpg)](http://www.youtube.com/watch?v=i1YvOuuliTk)
+
 [Seoul Landscape Live - South East](https://www.youtube.com/watch?v=JOAJlnmcCMY)
 
