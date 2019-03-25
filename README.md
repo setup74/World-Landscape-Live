@@ -7,7 +7,7 @@ Lists of World's Landscape Live Youtube Streams; last updated at 2018-03-25.
   **Work Landscape Live [https://setup74.github.io/world_landscape_live/](https://setup74.github.io/world_landscape_live/)**
 
 
-[![Ajaccio Live](http://img.youtube.com/vi/sDNHnV4gL6k/0.jpg)](https://www.youtube.com/watch?v=sDNHnV4gL6k)
+[![Ajaccio Live](http://img.youtube.com/vi/sDNHnV4gL6k/1.jpg)](https://www.youtube.com/watch?v=sDNHnV4gL6k)
 
 [![Seoul Landscape Live - North](http://img.youtube.com/vi/i1YvOuuliTk/0.jpg)](http://www.youtube.com/watch?v=i1YvOuuliTk)
 
