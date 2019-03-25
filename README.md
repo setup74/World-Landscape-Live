@@ -1,4 +1,4 @@
-[Ajaccio Live](https://www.youtube.com/watch?v=sDNHnV4gL6k)(N/A 2019-03-26)  
+[Ajaccio Live](https://www.youtube.com/watch?v=sDNHnV4gL6k) (N/A 2019-03-26)  
 [LIVE AJACCIO (FRANCE) WEBCAM](https://www.youtube.com/watch?v=6qPuAnOn1H8)  
 [WebCam Milano Live! 4K](https://www.youtube.com/watch?v=axH1UxsrWmc)  
 [Bologna (Italy) - panorama in diretta / landscape live cam - 24/7](https://www.youtube.com/watch?v=K6_qnay-zQU)  
