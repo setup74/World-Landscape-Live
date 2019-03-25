@@ -1,6 +1,5 @@
 Please let me know your youtube live stream: [mailto:setup74@gmail.com](mailto:setup74@gmail.com?subject=World%20Landscpae%20Live%20Registration)
-
-Add this link to your live page:
+and ddd this link to your live page:
   **World Landscape Live [https://setup74.github.io/world_landscape_live/](https://setup74.github.io/world_landscape_live/)**
 
 
