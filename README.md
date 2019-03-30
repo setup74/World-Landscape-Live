@@ -5,6 +5,6 @@
 [Seoul Landscape Live - North](http://www.youtube.com/watch?v=V9uQRj1PNHs)  
 [Seoul Landscape Live - South East](https://www.youtube.com/watch?v=JOAJlnmcCMY)  
 [Vision-Environnement - YouTube](https://www.youtube.com/user/TimelapsesWebcams?app=desktop) (Many Webcams in France)  
-[kachimai - YouTube](https://www.youtube.com/channel/UCT-PZ211r3_9mFdF0zC1HHg) (4 Lives in Japan)  
+[kachimai - YouTube](https://www.youtube.com/channel/UCT-PZ211r3_9mFdF0zC1HHg) (4 Lives Hokkaido in Japan)  
 
 *Please let me know your youtube live stream: [mailto:setup74@gmail.com](mailto:setup74@gmail.com?subject=World%20Landscpae%20Live%20Registration)*
