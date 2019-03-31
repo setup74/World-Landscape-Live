@@ -3,7 +3,7 @@
 [Bologna (Italy) - panorama in diretta / landscape live cam - 24/7](https://www.youtube.com/watch?v=K6_qnay-zQU)  
 [WebCam Milano Live! 4K](https://www.youtube.com/watch?v=BtQOtzgZLhE)  
 [Seoul Landscape Live - North](http://www.youtube.com/watch?v=V9uQRj1PNHs)  
-[Seoul Landscape Live - South East](https://www.youtube.com/watch?v=JOAJlnmcCMY)  
+[Seoul Landscape Live - South West](https://www.youtube.com/watch?v=JOAJlnmcCMY)  
 [Vision-Environnement - YouTube](https://www.youtube.com/user/TimelapsesWebcams?app=desktop) (Many Webcams in France)  
 [kachimai - YouTube](https://www.youtube.com/channel/UCT-PZ211r3_9mFdF0zC1HHg) (4 Lives Hokkaido in Japan)  
 
