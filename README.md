@@ -6,7 +6,7 @@
 [Seoul Landscape Live - North](http://www.youtube.com/watch?v=V9uQRj1PNHs)  
 [Seoul Landscape Live - South West](https://www.youtube.com/watch?v=JOAJlnmcCMY)  
 [Whaseoung 24Hours - Gungpyong Harbor](https://www.youtube.com/watch?v=UCSzaVd4amc)  
-[Korea Live Streaming: Cheongju-si, Chungcheongbuk-do, Korea](https://www.youtube.com/watch?v=J5kDvmPpCRg)
+[Korea Live Streaming: Cheongju-si, Chungcheongbuk-do, Korea](https://www.youtube.com/watch?v=J5kDvmPpCRg). 
 [Vision-Environnement - YouTube](https://www.youtube.com/user/TimelapsesWebcams?app=desktop) (Many Webcams in France)  
 [kachimai - YouTube](https://www.youtube.com/channel/UCT-PZ211r3_9mFdF0zC1HHg) (4 Lives Hokkaido in Japan)  
 
