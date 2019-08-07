@@ -4,6 +4,7 @@
 [Vikasa Live Stream From Chaweng Noi, Koh Samui, Thailand](https://www.youtube.com/watch?v=7D6OrwFOwCQ)  
 [Seoul Landscape Live - North](http://www.youtube.com/watch?v=V9uQRj1PNHs)  
 [Seoul Landscape Live - South West](https://www.youtube.com/watch?v=JOAJlnmcCMY)  
+[Seoul 3D Print Live](https://youtu.be/ZHGpYE4jhDY)  
 [Whaseoung 24Hours - Gungpyong Harbor](https://www.youtube.com/watch?v=UCSzaVd4amc)  
 [Korea Cheongju Weather Live Streaming](https://www.youtube.com/watch?v=J5kDvmPpCRg)  
 [Vision-Environnement - YouTube](https://www.youtube.com/user/TimelapsesWebcams?app=desktop) (Many Webcams in France)  
