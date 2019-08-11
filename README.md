@@ -3,7 +3,7 @@
 [WebCam Milano Live! 4K](https://www.youtube.com/watch?v=BtQOtzgZLhE)  
 [Vikasa Live Stream From Chaweng Noi, Koh Samui, Thailand](https://www.youtube.com/watch?v=7D6OrwFOwCQ)  
 [*Seoul 3D Print Live ^^*](https://youtu.be/ZHGpYE4jhDY)  
-[Seoul Landscape Live - North](https://youtu.be/uVARobrGIxE)  
+[Seoul Landscape Live - North](https://www.youtube.com/channel/UCs5a7Lfc2iozoGyGpwwC1Gg/live)  
 [Seoul Landscape Live - South West](https://www.youtube.com/watch?v=JOAJlnmcCMY)  
 [Whaseoung 24Hours - Gungpyong Harbor](https://www.youtube.com/watch?v=UCSzaVd4amc)  
 [Korea Cheongju Weather Live Streaming](https://www.youtube.com/watch?v=J5kDvmPpCRg)  
